@@ -35,7 +35,10 @@ Therefore what was vast majority of the Qur'an?
 - Abortion
 - Shirk(Association partner with Allah)
 - Treatment towards women
+- Casts(grouping people)
+- Racism/Sexism
+- Problems of the Heart
 
-There are all relevant today but in different forms.
+There are all relevant today but come in different forms.
 
 
