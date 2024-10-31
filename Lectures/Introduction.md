@@ -11,9 +11,31 @@
 - When Muslims are weak, we can derive a lot of wisdom from the Mecca period and similar for Medina.
 
 > The Prophet SAW used to pray around the Kabbah where there were idols around it. He knew that the idols were NOT the problem but its their belief(their hearts.) So, after 20 years he was able to destroy them - after conquering Mecca.
-
-
 #### Where was vast majority of Surah's get revealed?
 Prophet SAW had prophethood for 23 years. He was in Mecca for 13 years and 10 years in Medina. The scholars say that the vast majority of Qur'an was revealed in Mecca - with minimum being 87 and 27 in Medina. The longer surahs like Baqarah, Ali Imran were revelated in Medina. 
+
+These rules were revealed in Medina:
+- Obligatory fasts 
+- Zakat in details
+- Permission to fight the one who fights you
+- Prohibition of Alcohol
+- Obligatory of hijab
+- Inheritance
+
+Therefore what was vast majority of the Qur'an?
+- Aqeedah
+- Taqwah
+- Hell/Heaven/Hereafter
+- Stories(easy to relate to/examples/role models) 
+- Qualities of the Heart
+- How to treat people? (Mecca + Medina)
+- Connection with Allah
+
+#### What were the major problems around that time?
+- Abortion
+- Shirk(Association partner with Allah)
+- Treatment towards women
+
+There are all relevant today but in different forms.
 
 
