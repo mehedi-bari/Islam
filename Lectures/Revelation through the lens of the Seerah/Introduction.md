@@ -37,8 +37,11 @@ Therefore what was vast majority of the Qur'an?
 - Treatment towards women
 - Casts(grouping people)
 - Racism/Sexism
+- Slavery 
+- Inheritance 
 - Problems of the Heart
+- Relationships
+- Usury
 
-There are all relevant today but come in different forms.
-
+There are all relevant today but come in different forms. How do we tackle this? What is the most important thing to sort out first?
 
