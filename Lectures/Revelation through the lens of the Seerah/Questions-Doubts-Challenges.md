@@ -5,6 +5,8 @@
 # 25:1 تَبَارَكَ ٱلَّذِى نَزَّلَ ٱلْفُرْقَانَ عَلَىٰ عَبْدِهِۦ لِيَكُونَ لِلْعَـٰلَمِينَ نَذِيرًا
 > Blessed is the one who sent down the criterion upon his slave may be to all the worlds a warner.
 #### Why was the booked revealed gradually?
+Allah gives us 3 reasons in Surah Furqan. 
+
 
 # 25:32 وَقَالَ ٱلَّذِينَ كَفَرُوا۟ لَوْلَا نُزِّلَ عَلَيْهِ ٱلْقُرْءَانُ جُمْلَةًۭ وَٰحِدَةًۭ ۚ كَذَٰلِكَ لِنُثَبِّتَ بِهِۦ فُؤَادَكَ ۖ وَرَتَّلْنَـٰهُ تَرْتِيلًۭا
 > The ones who disbelief they say, "Why wasn't the Qur'an sent down to him at once!" "Thus we may strengthen your heart and we have (recited)revealed at a deliberate pace "
